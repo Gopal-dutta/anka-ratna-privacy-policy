@@ -126,6 +126,6 @@ You have the right to:
 
 By using Anka Ratna, you consent to this Privacy Policy and agree to its terms.
 
----
+--- 
 
 **Last Updated:** May 17, 2026
